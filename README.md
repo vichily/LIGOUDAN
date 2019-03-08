@@ -1,5 +1,5 @@
 ### LIGOUDAN
 李狗蛋
 
-![image](http://tmp/wx46b1d398c2a678a6.o6zAJsy2ZU5kJCv9JSHhl-PO-1eI.9eNeBczIVAAq1a39efed07c346cef2077942727ab6bb.png)
+![image](https://7669-vichily-ergou-1257249180.tcb.qcloud.la/QQ图片20181230114234.jpg?sign=081997d2785e0a31d312d5381cb0a613&t=1552039378)
 
